@@ -1,5 +1,5 @@
 # CS290
 
-<img src="https://imgur.com/a/S2P7sTW">
+<img src="https://i.imgur.com/i3SCRi6.gif">
 
-<img src="https://imgur.com/a/S2P7sTW.gif">
+<img src="https://imgur.com/i3SCRi6">
